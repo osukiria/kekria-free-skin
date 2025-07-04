@@ -15,5 +15,8 @@
 # [_kiria free baza](https://t.me/osukiria/251)
 ![image](https://sun9-57.userapi.com/impg/DRk3tnkxNzZrFKPA_cTzFg-ZvA1kM_rp5DhmEQ/rJlynCHIt1c.jpg?size=1920x1080&quality=95&sign=fb9c1de56d669933df82b713ac92a47a&type=album) 
 
+# [_kiria free chill](https://t.me/osukiria/433)
+![image](blob:https://web.telegram.org/d7c97ea7-945d-4b62-8c19-848b43756682) 
+
 # [Мои приватные скины с вашим хп баром и т.д](https://vk.com/uslugi-160336784?section=section&section_id=HUkaVBkGW1RwRwcDWVg2)
 ![image](https://sun9-55.userapi.com/impg/wCemynhpeKWCpMqhe83afHMRC5gdopzstRlz3w/P-rSWUmSkvs.jpg?size=772x867&quality=95&sign=5c3e2526135d7fbb20c9aec8c288067c&type=album)
