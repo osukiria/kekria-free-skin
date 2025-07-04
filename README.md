@@ -16,7 +16,7 @@
 ![image](https://sun9-57.userapi.com/impg/DRk3tnkxNzZrFKPA_cTzFg-ZvA1kM_rp5DhmEQ/rJlynCHIt1c.jpg?size=1920x1080&quality=95&sign=fb9c1de56d669933df82b713ac92a47a&type=album) 
 
 # [_kiria free chill](https://t.me/osukiria/433)
-![image](blob:https://web.telegram.org/d7c97ea7-945d-4b62-8c19-848b43756682) 
+![image](https://sun9-9.userapi.com/s/v1/if2/zwKrHjiUG6iTHDemjsJBViK6BgIEkR0cYgjw6SEw4qrRC_cI8AoRILM358iHAtzqeJmdAKjdJ_loaLyzPTs0s1ex.jpg?quality=95&as=32x18,48x27,72x40,108x61,160x90,240x135,360x202,480x270,540x304,640x360,720x405,1080x607,1280x720,1440x810,1920x1080&from=bu&cs=1920x0)
 
 # [Мои приватные скины с вашим хп баром и т.д](https://vk.com/uslugi-160336784?section=section&section_id=HUkaVBkGW1RwRwcDWVg2)
 ![image](https://sun9-55.userapi.com/impg/wCemynhpeKWCpMqhe83afHMRC5gdopzstRlz3w/P-rSWUmSkvs.jpg?size=772x867&quality=95&sign=5c3e2526135d7fbb20c9aec8c288067c&type=album)
