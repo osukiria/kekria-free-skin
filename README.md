@@ -21,6 +21,9 @@
 # [_kiria free DT](https://t.me/osukiria/506)
 ![image](https://sun9-77.userapi.com/s/v1/if2/O_GyjmTu8PYY-xPlxB6fUl39YWFHfugjjIOexvhCIJcGmSag-fC7pXAJRFhatMQMtsvnwlFUYBAhXqyQhEmb9ZbE.jpg?quality=95&as=32x18,48x27,72x40,108x61,160x90,240x135,360x202,480x270,540x304,640x360,720x405,1080x607,1280x720,1440x810,1920x1080&from=bu&u=t_tlbCCde4IK9k1BijsrOcEgRRRsSEjbHh3pVjLh8d4&cs=1920x0)
 
+# [_kiria free prikol](https://t.me/osukiria/595)
+![image](blob:https://web.telegram.org/d7e3901a-fc10-4d58-b0e6-3d66a658e291)
+
 
 # [Мои приватные скины с вашим хп баром и т.д](https://vk.com/uslugi-160336784?section=section&section_id=HUkaVBkGW1RwRwcDWVg2)
 ![image](https://sun9-55.userapi.com/impg/wCemynhpeKWCpMqhe83afHMRC5gdopzstRlz3w/P-rSWUmSkvs.jpg?size=772x867&quality=95&sign=5c3e2526135d7fbb20c9aec8c288067c&type=album)
