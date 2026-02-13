@@ -24,6 +24,9 @@
 # [_kiria free prikol](https://t.me/osukiria/595)
 ![image](https://sun83-2.userapi.com/s/v1/if2/xBSpLDtOi45xZYfrCr3er1wMie4Qjd1009YjmeuX2TAJznKEpMV_xYqW5NarqtGG5SkGfaeVn1P6C2sQkXaz2CzF.jpg?quality=95&as=32x18,48x27,72x40,108x61,160x90,240x135,360x202,480x270,540x304,640x360,720x405,1080x607,1280x720,1440x810,1920x1080&from=bu&cs=1920x0)
 
+# [_kiria WEB test](https://drive.google.com/file/d/1BZdHvwz9y5q87zstu-icZrVLeG3Ib_wD/view?usp=sharing)
+![image](https://sun9-12.userapi.com/s/v1/ig2/Q-EZM3HgHog55sv9xFZo4DKRYHmZuo6WVuERXdYt8Fb_Ak2Ichul4fvgP5Mm3kz5gsGXjR5UT8N0tzm3MsQHa38x.jpg?quality=95&as=32x18,48x27,72x40,108x61,160x90,240x135,360x202,480x270,540x304,640x360,720x405,1080x607,1280x720&from=bu&u=dCnt1g5u1Talw6yzDI8kEv1VmPm8eoEptDv_4nIlMEY&cs=1280x0)
+
 
 # [Мои приватные скины с вашим хп баром и т.д](https://vk.com/uslugi-160336784?section=section&section_id=HUkaVBkGW1RwRwcDWVg2)
 ![image](https://sun9-55.userapi.com/impg/wCemynhpeKWCpMqhe83afHMRC5gdopzstRlz3w/P-rSWUmSkvs.jpg?size=772x867&quality=95&sign=5c3e2526135d7fbb20c9aec8c288067c&type=album)
